@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...soccer
 - 📫 How to reach me ...nawalfatimabaloch@gmail.com
-- 😄 Pronouns: ...me aj
+- 😄 Pronouns: ...male he/him
 - ⚡ Fun fact: ...i love soccer
 - 
 
